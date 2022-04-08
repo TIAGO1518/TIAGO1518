@@ -1,0 +1,7 @@
+-  eu sou o Tiago rodrigues junior 
+- estudo no colegio  civico militar arlindo carvalho de amorim
+- hobby jogar futebol
+- <------------------------------------------------------------->
+- I'm the Tiago Rodrigues Junior 
+- Study at the military civic college Arlindo Carvalho de Amorim
+- hobby playing football
